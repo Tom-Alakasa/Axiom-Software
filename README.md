@@ -4,3 +4,4 @@ I'm tired 😭🙏
 
 COMO QUE DESATIVA O CAPSLOCK?
 (Bro tem literalmente uma tecla que se chama "Caps Lock")
+ACHO QUE NÃO FUNCIONOU 😭😭😭😭
